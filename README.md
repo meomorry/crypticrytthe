@@ -9,7 +9,7 @@
 
 <p align="center">$\text{\color{#c7c7c5}!! hewoooo}$ $\text{\color{#902d2b}>>}$
 <p align="center">$\text{\color{#902d2b}.✦}$ <ins>Meo</ins>morry $\text{\color{#698bb0}or}$ $\text{\color{#c7c7c5}Tiffs}$ $\text{\color{#698bb0}or}$ $\text{\color{#c7c7c5}Anmphh}$ $\text{\color{#698bb0}idc}$,
-ㅤㅤㅤㅤㅤㅤㅤ $\text{\color{#c7c7c5}.✦ w2i}$ $\text{\color{#698bb0}pleasssse}$ $\text{\color{#c7c7c5}i beg you}$ $\text{\color{#902d2b}!!!!}$ $\text{\color{#c7c7c5} I'm often}$ $\text{\color{#698bb0}offtab}$ $\text{\color{#902d2b}or}$ $\text{\color{#c7c7c5}afk and i may not reply}$ $\text{\color{#698bb0}srry}$,
+<p align="center">$\text{\color{#c7c7c5}.✦ w2i}$ $\text{\color{#698bb0}pleasssse}$ $\text{\color{#c7c7c5}i beg you}$ $\text{\color{#902d2b}!!!!}$ $\text{\color{#c7c7c5} I'm often}$ $\text{\color{#698bb0}offtab}$ $\text{\color{#902d2b}or}$ $\text{\color{#c7c7c5}afk and i may not reply}$ $\text{\color{#698bb0}srry}$,
 <p align="center">
 <sub>$\text{\color{#698bb0}mvmhvmvihvmvi im prettyyy sleepy,,,,,,}$</sub>
 
