@@ -1,8 +1,9 @@
 > [!CAUTION] 
 > do you know how pretty are you???
 <p align="center">
-<img width="889" height="180" alt="havofdsnfsccci" src="https://github.com/user-attachments/assets/ee7a0625-29b4-414c-b4b9-49feeb9f1507" />
-  
+<img width="865" height="110" alt="havofccci" src="https://github.com/user-attachments/assets/10f12a75-a981-4007-b2c5-bf7ab6c4c25d" />
+
+
 <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sup>.</sup> <sub>₊⊹</sub> <sup>✦</sup> <sub>₊⊹</sub> 
 
 <p align="center">$\text{\color{#c7c7c5}!! hewoooo}$ $\text{\color{#902d2b}>>}$
