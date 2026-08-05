@@ -1,5 +1,5 @@
 > [!CAUTION] 
-> do you know how pretty are you???
+> the sun is sooo far away..
 
 ***
 <p align="center">
