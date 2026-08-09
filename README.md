@@ -1,5 +1,5 @@
 > [!CAUTION] 
-> the sun is sooo far away..
+> sturgeon??? would NOT trust this guy w a scalpel !!
 
 ***
 <p align="center">
